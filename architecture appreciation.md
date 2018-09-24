@@ -7,3 +7,4 @@ Some interesting architecture appreciation.
 - [为野兽派艺术中心穿上透明的新装：渥太华国家艺术中心翻新工程](http://www.archcollege.com/archcollege/2018/02/39023.html) 
 - [锦莳设计工作室，上海 / 锦莳设计](http://www.gooood.hk/joy-saeson-studio-china-by-joy-season-studio.htm) 
 - [青普丽江白沙文化行馆，云南 / 堤由匡建筑设计工作室](https://www.gooood.cn/tsingpu-baisha-retreat-china-by-tsutsumi-associates.htm)
+- [Jingshang academy, China by Hangzhou Trenchant decoration design](https://www.gooood.cn/en/jingshang-academy-china-by-hangzhou-trench.htm)
